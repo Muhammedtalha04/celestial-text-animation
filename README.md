@@ -144,4 +144,4 @@ Sorularınız veya önerileriniz için issue açabilirsiniz.
 
 ---
 
-**Made with Talha and ✨ by the stars** 
+**Made with ❤️ and ✨ by the stars** 
